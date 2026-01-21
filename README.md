@@ -45,7 +45,7 @@ Minha atuação é fundamentada na intersecção entre o rigor da investigação
 ---
 
 ### Conexão Profissional | Professional Connection
-* **LinkedIn:** In update
+* **LinkedIn:** www.linkedin.com/in/matheus-takahashi-039152283
 * **Lattes:** https://lattes.cnpq.br/4714719284392803
 * **E-mail:** maftakahashi.l@gmail.com
 
