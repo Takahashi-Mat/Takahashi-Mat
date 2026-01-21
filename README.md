@@ -1,7 +1,7 @@
 # Matheus Takahashi
 
-**Biólogo | Pesquisador em Bioestatística e Agronomia**
-*Biologist | Bio-Statistic and Agronomy Researcher*
+**Estudante de Biologia | Pesquisador em Bioestatística e Agronomia**
+*Biology Student | Bio-Statistic and Agronomy Researcher*
 
 ---
 
